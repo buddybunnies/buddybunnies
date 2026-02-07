@@ -6,6 +6,6 @@
 
 
 
-　　　　 　　　![hai](https://komarev.com/ghpvc/?username=your-github-username&label=𓎢𓎟𓎟+teammates)
+　　　　 　　　![hai](https://komarev.com/ghpvc/?username=your-github-username&label=teammates+✧)
 
-　 　𓏼 im super super friendly 
+　 　𓏼 　 im super super friendly (dont factcheck w my friends) 
